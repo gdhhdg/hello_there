@@ -1,2 +1,2 @@
-![Alt Hello There](https://thumbs.gfycat.com/HeartfeltBoldGonolek-mobile.mp4)
+![Imgur Image](http://i.imgur.com/zTONrOD.jpg)
 
