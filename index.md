@@ -1,2 +1,2 @@
-![Imgur Image](http://i.imgur.com/zTONrOD.jpg)
+![Imgur Video](https://i.imgur.com/j3CHqZJ.mp4)
 
