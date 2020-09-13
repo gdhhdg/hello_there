@@ -1,2 +1,2 @@
-![Imgur Image](https://i.imgur.com/j3CHqZJ.mp4)
+![Screenshot](https://i.imgur.com/j3CHqZJ.mp4)
 
